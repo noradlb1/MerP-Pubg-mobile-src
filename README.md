@@ -10,4 +10,4 @@ https://1877.to/forums/threads/leaked-pubgm-source-code-esp-ios-2-2-1-global-xco
 
 -- --
 
-My Discord: https://discord.gg/r8FBRrAheE
+My Discord: https://discord.gg/YMNUCersTM
